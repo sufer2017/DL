@@ -1,2 +1,2 @@
 # DL
-JUST FOR PORJECTS
+Just KEEP exploring!
